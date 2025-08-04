@@ -1,1 +1,3 @@
-# .github
+# *12 Laws of the Universe: Unlocking the Secrets of Existence*
+## *In a world saturated with self-help books and spiritual guides, a truly impactful book stands out not just for what it says, but for how it empowers you to think. “12 Laws of the Universe” by Manhardeep Singh is one such book—a powerful and concise guide that seeks to demystify the cosmic principles governing our existence. Far from being a mystical or overly complex text, Singh’s work is a practical manual for life, offering a clear framework for understanding how our thoughts, actions, and intentions shape our reality.* [More details…](https://spiritualkhazaana.com/12-laws-of-the-universe-secrets-of-existence/)
+## #lawsoftheuniverse #12LawsoftheUniverse #LawofAttraction #LawofVibration #LawofKarma #universalprinciples #spiritualgrowth #manifestation #personaldevelopment #howtochangeyourlife
